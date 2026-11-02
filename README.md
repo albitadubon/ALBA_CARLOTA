@@ -1,2 +1,5 @@
 # ALBA_CARLOTA
-Ejercicio
+6
+7
+8
+
